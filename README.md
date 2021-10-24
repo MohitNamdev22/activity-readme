@@ -1,3 +1,0 @@
-## Names
-
-Name: Mohit Namdev
